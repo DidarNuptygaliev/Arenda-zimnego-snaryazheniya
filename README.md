@@ -1,0 +1,1 @@
+# Arenda-zimnego-snaryazheniya
